@@ -2,7 +2,7 @@
 - 👀 I’m interested in discovering
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on web and mobile app design and development 
-- 📫 How to reach me Xspalt2@gmail.com
+- 📫 How to reach me sselunkumajulius1@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
